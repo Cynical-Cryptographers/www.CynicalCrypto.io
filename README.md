@@ -1,1 +1,1 @@
-# www.CynicalCryptographers.io
+# www.CynicalCrypto.io
